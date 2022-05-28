@@ -1,1 +1,1 @@
-[EmiyaGarcher's GitHub](http://github.com](https://github.com/EmiyaGARcher)
+[EmiyaGarcher's GitHub](https://github.com/EmiyaGARcher)
